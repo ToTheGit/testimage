@@ -32,3 +32,5 @@ https://github.com/user-attachments/assets/c600459e-4329-4283-bfa5-42ac4ee164df
 ![김연아33](https://github.com/user-attachments/assets/bdfc11d2-d174-45df-9a03-9fcdb42a62f9)
 ![김연아34](https://github.com/user-attachments/assets/ddc7a4c4-a827-462b-88ef-ca99290451b4)
 ![김연아35](https://github.com/user-attachments/assets/daf420a8-c6fb-46bf-b180-1bfad9609e0c)
+![커리](https://github.com/user-attachments/assets/b8e95972-0595-48ac-b5d9-07290eab3643)
+
